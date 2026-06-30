@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-NISE000718HMSTLDA0
+NISE000718HMSTLDA0
